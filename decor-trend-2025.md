@@ -38,7 +38,7 @@ Here are some popular carpet options:
 - **Shaggy Carpets**: Ideal for creating a cozy and luxurious atmosphere in living rooms and bedrooms.
 - **Modern Geometric Carpets**: Perfect for a contemporary look, bringing texture and pattern to your flooring.
 
- Explore variety of [**carpets in Dubai**](https://decorland.ae/carpet/) at ** Decorland.**
+ Explore variety of [**carpets in Dubai**](https://decorland.ae/carpet/) at **Decorland**.
 
 ## 6. Minimalism with Purpose
 
